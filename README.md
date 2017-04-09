@@ -5,7 +5,7 @@ I’m investing $100k of funny money into my favorite companies and tracking the
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date.
 
-### April 7, 2017
+### April 8, 2017
 
 #### Omni
 
