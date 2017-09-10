@@ -5,17 +5,19 @@ I’m investing $100k of funny money into my favorite companies and tracking the
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
-### September 8, 2017
-
-#### [Customer Science](https://customersci.com)
-
-Perks of being around Tyler and Noah as they build this company are that I'm getting in early. Huge believer in these two and know that the market finds what they're building to be of extremely high value. That, plus their track record? A no-brainer if I've ever heard of one.
+### September 10, 2017
 
 #### [Lambda School](https://lambdaschool.com/)
 
 You may ask yourself, "what makes Lambda different than other coding schools that cannot easily be replicated by all of the others?"
 
 The answer is the founders. The level of creativity and drive is next-level. Betting against them would be a mistake so  I'm in.
+
+### September 8, 2017
+
+#### [Customer Science](https://customersci.com)
+
+Perks of being around Tyler and Noah as they build this company are that I'm getting in early. Huge believer in these two and know that the market finds what they're building to be of extremely high value. That, plus their track record? A no-brainer if I've ever heard of one.
 
 ### April 8, 2017
 
