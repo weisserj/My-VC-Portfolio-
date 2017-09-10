@@ -11,6 +11,12 @@ Every month, I’ll invest $100k of fake capital into a handful of companies. I�
 
 Perks of being around Tyler and Noah as they build this company are that I'm getting in early. Huge believer in these two and know that the market finds what they're building to be of extremely high value. That, plus their track record? A no-brainer if I've ever heard of one.
 
+#### [Lambda School](https://lambdaschool.com/)
+
+You may ask yourself, "what makes Lambda different than other coding schools that cannot easily be replicated by all of the others?"
+
+The answer is the founders. The level of creativity and drive is next-level. Betting against them would be a mistake so  I'm in.
+
 ### April 8, 2017
 
 #### [Omni](https://www.beomni.com/)
