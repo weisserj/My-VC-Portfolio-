@@ -7,6 +7,11 @@ I’m investing $100k of funny money into my favorite companies and tracking the
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
+### August 10, 2018
+
+#### [Holloway](https://www.holloway.com/)
+
+
 ### September 10, 2017
 
 #### [Lambda School](https://lambdaschool.com/)
