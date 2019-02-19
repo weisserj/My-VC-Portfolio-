@@ -1,5 +1,5 @@
 # My VC "Portfolio"
-I’m investing $100k of funny money into my favorite companies and tracking their progress over time. Fun!
+I’m investing $100k of imaginary money into my favorite companies and tracking their progress over time. Fun!
 
 *[See notes on all 2017 investments and how they've fared since I've backed them](https://medium.com/@julianweisser/reviewing-last-years-investments-4187841f1357).*
 
@@ -19,8 +19,8 @@ Progress since investment: Graduated first class of students and 25% had jobs wi
 
 ### September 8, 2017
 
-#### [Customer Science](https://customersci.com)
-Progress since investment: Can’t disclose anything but I feel even better now than when I first “invested” in Customer Science :)
+#### [Unsupervised](https://Unsupervised.com)
+Invested when it was called Customer Science. Progress since investment: Can’t disclose anything but I feel even better now than when I first “invested” in it! :)
 
 ### April 8, 2017
 
@@ -30,8 +30,8 @@ Progress since investment: I participated in the $7M series A (typically a no-no
 #### [Knack](https://www.joinknack.com/)
 Progress since investment: closed $1.5M seed round co-led by Charles Hudson’s Precursor Ventures and Tampa Bay Lighting owner and Fenway Sports Group Partner, Jeff Vinik. Other investors in the round include Bisk Ventures, the corporate venture-arm of Bisk Education; Arizona State University Enterprise Partners; Doug Feirstein, founder of Hired, uSell, and LiveOps; former State of Florida CFO Alex Sink; Tom DiBenedetto of Fenway Sports Group; PAR Inc.; and Elysium Venture Capital.
 
-#### [Movebutter](https://www.movebutter.com/)
-Now renamed to Move (Direct-to-consumer grocery store).
+#### [Move](https://www.movebutter.com/)
+Invested when it was called Move Butter. Direct-to-consumer grocery store.
 
 #### [Loom](https://www.useloom.com/)
 Progress since investment: 1.5 months after investing, Loom raised money from SaaS legends Brian Balfour (Hubspot) and Hiten Shah (Kissmetrics) along with other great investors. Latest: closed $11M series A led by Kleiner Perkins with Ilya Fushman (ex-head of product at Dropbox, board member of Slack, Intercom and now Loom).
