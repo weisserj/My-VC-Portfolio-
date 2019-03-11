@@ -7,10 +7,15 @@ I’m investing $100k of imaginary money into my favorite companies and tracking
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
+### March 11, 2019
+
+#### [Ohana Health](https://www.ohanaclinical.com)
+Incredible founder (previously co-founded Color Genomics, managing director of indiebio) and following a similar fullstack digital clinic approach that I'm familiar with from my experiences at Virta. Can help team with product/ops experience from Virta and hiring through On Deck.
+
 ### August 10, 2018
 
 #### [Holloway](https://www.holloway.com/)
-
+The future of nonficition book publishing (my words, not theirs)
 
 ### September 10, 2017
 
