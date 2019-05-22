@@ -20,7 +20,7 @@ Incredible founder (previously co-founded Color Genomics, managing director of i
 ### August 10, 2018
 
 #### [Holloway](https://www.holloway.com/)
-The future of nonficition book publishing (my words, not theirs)
+The future of nonfiction book publishing (my words, not theirs)
 
 ### September 10, 2017
 
