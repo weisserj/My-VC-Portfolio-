@@ -7,6 +7,11 @@ I’m investing $100k of imaginary money into my favorite companies and tracking
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
+### May 17, 2019
+
+#### [Roll](http://ridewithroll.com)
+I've known Zane for a while and think he's really onto something with financial tools for ridesharing drivers. I'm one of three angels with money in at this point.
+
 ### March 11, 2019
 
 #### [Ohana Health](https://www.ohanaclinical.com)
