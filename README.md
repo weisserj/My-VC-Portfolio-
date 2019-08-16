@@ -7,6 +7,21 @@ I’m investing $100k of imaginary money into my favorite companies and tracking
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
+### August 16, 2019
+
+#### [Vori](#) - On Deck Fellow
+Future of retail (starting with artisan groceries)
+
+#### [Reading Supply](reading.supply)
+Future of online writing
+
+#### [BH Sales Company] - On Deck Fellow
+Can't disclose much about this yet
+
+#### [CS Post-Sale Tool/Ad network] - On Deck Fellow
+Can't disclose much about this yet
+
+
 ### May 17, 2019
 
 #### [Roll](http://ridewithroll.com)
