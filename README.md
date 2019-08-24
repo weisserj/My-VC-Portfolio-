@@ -7,6 +7,10 @@ I’m investing $100k of imaginary money into my favorite companies and tracking
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
+### August 23, 2019
+Sling Health
+Compound (JG startup)
+
 ### August 16, 2019
 
 #### [Vori](#) - On Deck Fellow
