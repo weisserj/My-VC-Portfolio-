@@ -7,6 +7,9 @@ I’m investing $100k of imaginary money into my favorite companies and tracking
 
 Every month, I’ll invest $100k of fake capital into a handful of companies. I’ll put the date of “investment” and revisit each investment at a later date to see how they did. I'm sure they'll all wow you! :-)
 
+### October 2, 2019
+Sunsama - easily one of the best products I've seen. In a few months to a year will be as well-known and popular as Notion and Superhuman.
+
 ### September 1, 2019
 Intantish
 
